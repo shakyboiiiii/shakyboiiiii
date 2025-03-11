@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @shakyboiiiii
 - 👀 I’m interested in anime and memes
 - 🌱 I’m currently in eighth grade
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on memes
 - 📫 can reach me in pinterest (user name is 'Shakyboii')
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: my blood group is A negative
