@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shakyboiiiii
 - 👀 I’m interested in anime and memes
-- 🌱 I’m currently in eighth grade
+- 🌱 I’m currently in ninth grade
 - 💞️ I’m looking to collaborate on memes
 - 📫 can reach me in discord (user name is 'shaky_980')
 - 😄 Pronouns: He/Him
