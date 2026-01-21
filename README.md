@@ -2,7 +2,7 @@
 - 👀 I’m interested in anime and memes
 - 🌱 I’m currently in ninth grade
 - 💞️ I’m looking to collaborate on memes
-- 📫 can reach me in discord (user name is 'shaky_980')
+- 📫 can reach me in discord (user name is 'shaky980')
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: my blood group is A negative
 
